@@ -1,0 +1,2 @@
+# bummble-primedrink
+KSI &amp; LOGAN PAUL FAMOUSE DRINK PRIME FOR FIVEM
